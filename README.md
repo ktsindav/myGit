@@ -1,0 +1,1 @@
+## Lets relearn everything again and this time be focused and persistent 
